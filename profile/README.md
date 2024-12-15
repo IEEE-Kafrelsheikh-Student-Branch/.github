@@ -2,6 +2,10 @@
 
 <br />
 
+![](https://github.com/IEEE-Kafrelsheikh-Student-Branch/.github/blob/main/394469533_737616061745168_881354411408282444_n.jpg?raw=true)
+
+<br />
+
 - 🌍  I'm based in Kafr Ash Shaykh, Egypt
 - 🖥️  Visit our website at [ieee-ksb.com](http://ieee-ksb.com/)
 - ✉️  You can contact us at [Our FB Page](https://www.facebook.com/IEEE.KUSB)
